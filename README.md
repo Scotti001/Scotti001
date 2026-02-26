@@ -1,4 +1,4 @@
-## 👋 Olá! Eu sou o Scotti
+## 👋 Olá! Eu sou  a Micheli
 
 Sou estudante e desenvolvedor de software apaixonado por tecnologia e inovação no agronegócio.
 
